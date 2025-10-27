@@ -5,4 +5,6 @@
 * Olive Oil
 * Sunflower Butter
 * Cumin
+* ½ cup tahini
 # Instructions
+wash chickpeas
